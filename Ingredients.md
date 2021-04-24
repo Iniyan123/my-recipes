@@ -1,0 +1,1 @@
+Milk, Coco powder, all purpose flour (maida), Baking soda , baking powder, sugar (powdered), vanilla escence, eggs(optional), butter.
